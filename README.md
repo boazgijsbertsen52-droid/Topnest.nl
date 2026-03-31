@@ -1,0 +1,1 @@
+Onze vogelhuisjes worden met zorg en vakmanschap met de hand gemaakt. Elk stuk hout wordt zorgvuldig geselecteerd en bewerkt door onze vakman. Dit zorgt voor een stevig, duurzaam en uniek product waarin vogels veilig kunnen nestelen. Kwaliteit en ambacht staan bij ons altijd voorop.
